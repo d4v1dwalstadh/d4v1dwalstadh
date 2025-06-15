@@ -1,5 +1,5 @@
 # 💫 Om Meg:
-Engasjert informatikk student på Universitetet i Oslo. En fot planta i<br>koden og den andre på håndballbanen. God sans for AI,<br>metaanalyse og finans.
+Engasjert informatikk student på Universitetet i Oslo. En fot planta i<br>koden og den andre på håndballbanen. God sans for AI,<br>metaanalyse og finans :).
 
 
 ## 🌐 Sosiale Medier:
